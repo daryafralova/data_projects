@@ -13,8 +13,11 @@
 ⬆️ Таблица периодически пополняется новыми проектами
 
 Автор
+
 Даша — Data Analyst
 
 Контакты:
+
 Telegram: t.me/daryafralova
+
 Email: daryafralova@gmail.com
